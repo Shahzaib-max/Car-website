@@ -1,0 +1,1 @@
+#it is the well upon the time is not interval and the section is assigned of the operators in which python development in source of the course is applied on this sigment before the lie of this can we upto the dangerours we have to cure or safe this when i want to that upon we can also a literal happen is very or well this compartment is locally cathode when doesnot share to can
